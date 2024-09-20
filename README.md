@@ -1,1 +1,1 @@
-# revisi-n-sistem-tica-IA.
+# revision-sistematica-IA.
